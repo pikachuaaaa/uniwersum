@@ -1,0 +1,9 @@
+Homo Arcanus to podgatunek człowieka który wskutek ewolucyjnego przystosowania wykształcił organ umożliwiający korzystanie z magii naturalnie. Ludzie ci nie potrzebują [[Technologia#Rdzenie|rdzeni]] do korzystania z magii na wysokim poziomie. 
+
+Homo Arcanus przechodzi proces przystosowania po tym jak ludzie wystawieni na wielkie ilości [[Magia|magii]] przeżyją i stworzą nowe pokolenia. Trwa to zazwyczaj kilka pokoleń aż mutacje się ustabilizują
+
+Magia powoduje w tych ludziach zmiany koloru tęczówek oczu, na ich kończynach pojawiają się świecące na niebiesko żyły. Ich temperatura ciała jest mocno obniżona do około 35 stopni są wyjątkowo bladzi a ich włosy bardzo szybko siwieją. Często są bardziej podatni na choroby oraz nadmierne ciepło zazwyczaj chowają sie w zimneijszym klimacie. Ze względu na przyswojenie dużej ilości magii mają oni jej pragnienie i naturalną odporność na jej działanie.
+
+Sami "skażeni" tworzą wspólnoty które łączą się wobec krzywdy która ich spotkała. Wspominają swoje rodziny które przeżyły to samo. Wspólnie uczą się magii. Życie jest dla nich ideą samą w sobie i warto je pielęgnować. W swoich wspólnotach eksponują swoje cechy i traktują za coś naturalnego i pięknego nawet jeżeli świat próbuje im wmówić inaczej.
+
+Ze względu na ich cechy są bardzo często stygmatyzowani w społeczeństwach [[Aion|Aionu]]. Inni uważają ich za skażonych, wybryk natury. Ich naturalna magia jest wyśmiewana a oni wysyłani do gett. W niektórych państwach nadają się do roli pracowników fizycznych czy służących. Służby oddzielają ich od reszty społeczeństwa aby nie powstawało ich więcej. Część z nich która miała szczęście dotrzeć na [[Eos]] tam stara się zbudować miejsce dla nich gdzie kontrola jest mniejsza.

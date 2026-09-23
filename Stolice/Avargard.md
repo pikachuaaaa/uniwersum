@@ -1,0 +1,3 @@
+**Przynależność:**
+**Populacja:**
+**Władza:**
